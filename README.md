@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-war-on-drugs-and-criminal-justice-system
+<br>
+Select a policy issue from the following list: DUI task forces Plea bargaining Offender reentry/integration Victim assistance Immigration War on drugs War on terrorism Write a 1,400-1,750-word paper in which you summarize the goals in the criminal justice system that your selected policy attempts to achieve. Analyze the effective and ineffective initiatives associated with your selected policy, as well as any historical significance that may have impact. Cite your references properly consistent with APA guidelines
